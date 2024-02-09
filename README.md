@@ -6,7 +6,7 @@
 LinkedIn - https://www.linkedin.com/in/anannya-tiwari-a832b6227/
 - 😄 Pronouns: ... Aksh
 - ⚡ Fun fact: ... I Love To Write Lyrics In Free Time .
-- I Am a Singer Also And Have A Youtube Channel Named OfficialAkshTiwar
+- I Am a Singer Also And Have A Youtube Channel Named OfficialAkshTiwari
 
 <!---
 Anannya-Tiwari/Anannya-Tiwari is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
